@@ -1,4 +1,4 @@
-# 
+# ذكي market making bot أدوات لـ Mac OS | أصلي market making bot أدوات لـ PC Windows. مع إدارة المخاطر و إشارات الانعكاس — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
